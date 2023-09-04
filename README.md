@@ -1,0 +1,2 @@
+# trening
+trening på nettsider
